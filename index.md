@@ -1,4 +1,5 @@
-# Colloquium on Principles of Verification: Cycling the Probabilistic Landscape
+# Annual Meeting of IFIP Working Group 2.2
+# RWTH Aachen University, Aachen, Germany
 
 On the occasion of Joost-Pieter Katoen's 60th birthday in October 2024, there will be a special colloqium to celebrate his achievements and personal engagement.
 
