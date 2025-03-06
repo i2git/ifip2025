@@ -15,7 +15,7 @@ TBA
 
 ## Accommodation
 
-We kindly ask all participants including invited speakers to make travel arrangements themselves (with our assistance, if needed). Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/). A recommendation would be [Motel One](https://maps.app.goo.gl/rr9SekbDvCyixqg57), as it is rather close to the meeting place.
+We kindly ask all participants including invited speakers to make travel arrangements themselves (with our assistance, if needed). Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/).
 
 ## Registration
 
