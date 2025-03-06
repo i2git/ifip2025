@@ -19,7 +19,7 @@ Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen
 
 ## Lunches
 
-Lunches will be on your own. The meeting venue is close to various restaurants around the corner, the city center and in the Pontstrasse.
+Lunches will be on your own. The meeting venue is close to various restaurants around the corner, the city center and in the [Pontstrasse](https://www.aachen-tourismus.de/en/discover-aachen/sightseeing-attractions/details/pontstrasse/).
 
 ## Registration
 
