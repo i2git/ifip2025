@@ -21,7 +21,7 @@ Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen
 
 TBA
 
-## Organisers
+## Organizers
 
 - [Joost-Pieter Katoen](https://moves.rwth-aachen.de/people/katoen/)
 - [Thomas Noll](https://moves.rwth-aachen.de/people/noll/)
