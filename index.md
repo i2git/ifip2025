@@ -15,7 +15,7 @@ The meeting will take place in room 001 on the ground floor in the [GRS German R
 
 ## Accommodation
 
-Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/). As a recommendation, [Motel One](https://www.motel-one.com/en/hotels/aachen/hotel-aachen/) is a very comfortable and affordable hotel in about 15 minute walkiing distance from the meeting venue.
+Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/). As a recommendation, [Motel One](https://www.motel-one.com/en/hotels/aachen/hotel-aachen/) is a very comfortable and affordable hotel in about 15 minute walking distance from the meeting venue.
 
 ## Lunches
 
