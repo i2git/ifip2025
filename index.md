@@ -11,7 +11,7 @@ TBA
 
 ## Venue
 
-TBA
+The meeting will take place in room 001 on the ground floor in the [GRS German Research School at Schinkelstraße 2 in 52062 Aachen](https://www.rwth-aachen.de/cms/root/die-rwth/kontakt-anreise/rwth-navigator/~cxcq/maps-gebaeude/?showall=1). Transportation options for getting to and moving around in Aachen are available [here](https://www.rwth-aachen.de/cms/root/Die-RWTH/Kontakt-Anreise/~jgtm/Anreise-und-Mobilitaet/lidx/1/).
 
 ## Accommodation
 
