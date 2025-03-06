@@ -11,11 +11,11 @@ TBA
 
 ## Venue
 
-The meeting will take place in room 001 on the ground floor in the [GRS German Research School at Schinkelstraße 2 in 52062 Aachen](https://www.rwth-aachen.de/cms/root/die-rwth/kontakt-anreise/rwth-navigator/~cxcq/maps-gebaeude/?showall=1). Transportation options for getting to and moving around in Aachen are available [here](https://www.rwth-aachen.de/cms/root/Die-RWTH/Kontakt-Anreise/~jgtm/Anreise-und-Mobilitaet/lidx/1/).
+The meeting will take place in room 001 on the ground floor in the [GRS German Research School at Schinkelstraße 2 in 52062 Aachen](https://www.rwth-aachen.de/cms/root/die-rwth/kontakt-anreise/rwth-navigator/~cxcq/maps-gebaeude/?showall=1). Transportation options for getting to and moving around in Aachen are available [here](https://www.rwth-aachen.de/cms/root/Die-RWTH/Kontakt-Anreise/~jgtm/Anreise-und-Mobilitaet/lidx/1/). We kindly ask all participants to make travel arrangements on their own (with our assistance, if needed).
 
 ## Accommodation
 
-We kindly ask all participants including invited speakers to make travel arrangements themselves (with our assistance, if needed). Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/).
+Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/).
 
 ## Registration
 
