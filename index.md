@@ -32,4 +32,4 @@ TBA
 
 ## Questions
 
-If you you need further assistance or have any questions, please write an e-mail to `ifip2025 (at) i2 (dot) informatik (dot) rwth-aachen (dot) de`.
+If you you need further assistance or have any questions, please contact us via `ifip2025 (at) i2 (dot) informatik (dot) rwth-aachen (dot) de`.
