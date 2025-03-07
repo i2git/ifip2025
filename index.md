@@ -1,4 +1,4 @@
-# Annual Meeting of IFIP Working Group 2.2
+# Annual Meeting of IFIP Working Group 2.2: Formal Description of Programming Concepts
 ### RWTH Aachen University, Aachen, Germany
 ### September 24-26, 2025
 
