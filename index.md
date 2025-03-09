@@ -17,7 +17,7 @@ We kindly ask all participants to make travel arrangements on their own (with ou
 
 ## Accommodation
 
-Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [HRS.com](https://www.hrs.com), or [Booking.com](https://www.booking.com/). As a recommendation, [Motel One](https://www.motel-one.com/en/hotels/aachen/hotel-aachen/) is a very comfortable and affordable hotel in about 15 minute walking distance from the meeting venue.
+Hotel accommodation is available via [Aachen Tourist Service](https://www.aachen-tourismus.de/en/aachen/ukv), [Booking.com](https://www.booking.com/), or [HRS.com](https://www.hrs.com). As a recommendation, [Motel One](https://www.motel-one.com/en/hotels/aachen/hotel-aachen/) is a very comfortable and affordable hotel in about 15 minute walking distance from the meeting venue.
 
 ## Lunches
 
