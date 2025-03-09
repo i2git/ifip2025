@@ -3,7 +3,7 @@
 ### September 24-26, 2025
 
 The primary aim of [IFIP Working Group 2.2](https://www.uni-muenster.de/IFIP-WG22/) is to explain programming concepts through the development, examination and comparison of various formal models of these concepts.
-In 2025, its annual meeting will be organized by the [Software Modeling and Verification Group](https://moves.rwth-aachen.de) at [RWTH Aachen University](https://www.rwth-aachen.de/).
+In 2025, its annual meeting is organized by the [Software Modeling and Verification Group](https://moves.rwth-aachen.de) at [RWTH Aachen University](https://www.rwth-aachen.de/).
 
 ## Programme
 
