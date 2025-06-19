@@ -27,7 +27,7 @@ Lunches will be on your own. The meeting venue is close to various restaurants a
 
 TBA
 
-## Organizers
+## Local Organizers
 
 - [Joost-Pieter Katoen](https://moves.rwth-aachen.de/people/katoen/)
 - [Thomas Noll](https://moves.rwth-aachen.de/people/noll/)
