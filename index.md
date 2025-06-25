@@ -7,7 +7,7 @@ In 2025, its annual meeting is organized by the [Software Modeling and Verificat
 
 ## Programme
 
-TBA
+TBA 
 
 ## Venue
 
