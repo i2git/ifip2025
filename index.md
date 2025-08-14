@@ -25,7 +25,7 @@ Lunches will be on your own. The meeting venue is close to various restaurants a
 
 ## Registration
 
-Registration is possible by personal invitation only. The workshop fee amount to 60€, to be paid in cash upon arrival.
+Registration is possible by personal invitation only. The workshop fee amount to 60€ (to be paid in cash upon arrival).
 
 ## Local Organizers
 
