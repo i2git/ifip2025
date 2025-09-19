@@ -10,7 +10,7 @@ In 2025, its annual meeting is organized by the [Software Modeling and Verificat
 Please refer to this [Google document](https://docs.google.com/document/d/19cKzv11NE6JgceREYUPDQKHpWbk5TnHOvDDzD1yg9GE/edit?usp=sharing) for the preliminary programme.
 It features the following two social events:
 
-- Wednesday at 19:00: Joint dinner (self-paid) at ["La Fabrik"](https://www.la-fabrik.de/), located at [Bachstraße 20, 52066 Aachen](https://maps.app.goo.gl/Qq7GdDxWaZ4qagmQA).
+- Wednesday at 19:00: Joint dinner (self-paid) at [*La Fabrik*](https://www.la-fabrik.de/), located at [Bachstraße 20, 52066 Aachen](https://maps.app.goo.gl/Qq7GdDxWaZ4qagmQA).
 - Thursday at 17:00: Excursion with guided tour at [Aachen Cathedral](https://www.aachenerdom.de/en/). For detailed information, please refer to this [PDF document](Tips-Domfuehrung.pdf).
 
 ## Venue
